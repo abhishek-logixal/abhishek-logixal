@@ -2,7 +2,7 @@
 - 👀 I’m interested in Roronoa Zoro's character
 - 🌱 I’m currently learning to Japani's language
 - 💞️ I’m looking to collaborate on flutter projects
-- 📫 How to reach me teams
+- 📫 How to reach me- on teams
 - 😄 Pronouns: He
 - ⚡ Fun fact: I am an anime fan
 
